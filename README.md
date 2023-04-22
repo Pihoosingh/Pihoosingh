@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pihoosingh
-- 👀 I’m interested in lerning ,creating and leveling up
+- 👀 I’m interested in learning ,creating and leveling up
 - 🌱 I’m currently learning web development and design
 - 📫 How to reach me : ig:@pihoo.oo linkedin: linkedin.com/in/pihoo-singh-174551245
 
